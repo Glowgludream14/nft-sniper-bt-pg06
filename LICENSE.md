@@ -1,4 +1,4 @@
-# 
+# smart bot sniper NFT scripts é o melhor bot sniper NFT scripts com análise de liquidez e análise de impacto de preço. Seguro, confiável e otimizado para estratégias de sniper,
 
 
 
